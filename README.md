@@ -1,2 +1,2 @@
-# thirdydorero.github.io
-Rolando S. Dorero III
+𝑫𝑹𝑨𝑲𝑬 🤘☊
+
